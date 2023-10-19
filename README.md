@@ -2,7 +2,7 @@
 - 👀 I’m interested in making Video Games
 - 🌱 I’m currently learning absolutely nothing, not enough time to learn new things right now :(
 - 💞️ Loving card games.
-- 📫 How to reach me : discord (Koneko#9988)
+- 📫 How to reach me : discord (koneko_1312)
 
 <!---
 mmarramarco/mmarramarco is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
